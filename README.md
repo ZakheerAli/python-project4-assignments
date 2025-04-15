@@ -37,4 +37,4 @@ Thanks to **GIAIC initiative** for providing this incredible learning opportunit
 
 ## ✨ Author
 **Zakheer Ali**  
-Let’s connect on [LinkedIn](https://www.linkedin.com/in/zakheer-ali/)  
+Let’s connect on [LinkedIn](https://www.linkedin.com/in/zakheer-ali-57a8a1335/)  
